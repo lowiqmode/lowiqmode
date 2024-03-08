@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning english, german, japanese and korean (I just love languages)
 - 💞️ I’m looking to collaborate on games? Maybe? I can help with ideas and with betatesting! :)
 - 📫 How to reach me? You can DM me on Discord, my nickname is lowiqmode
-- 😄 Pronouns: He/his
+- 😄 Pronouns: He/him
 - ⚡ Fun fact: I don't really like apples :/
 
 <!---
